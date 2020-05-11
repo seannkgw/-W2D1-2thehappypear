@@ -21,7 +21,7 @@ FOR THE SPICY CURRY SAUCE:
 * 2 tbsp ground almond
 * 1 tin of chopped tomatoes
 * 2 tin of coconut milk
-* 1 pack of walnuts
+* 2 pack of walnuts
 
 
 ### H3
