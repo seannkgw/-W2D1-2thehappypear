@@ -19,13 +19,13 @@ FOR THE SPICY CURRY SAUCE:
 * 1 tsp salt, more to taste
 * 3 tbsp desiccated coconut
 * 2 tbsp ground almond
-* 1 tin of chopped tomatoes
+* 2 tin of chopped tomatoes
 * 2 tin of coconut milk
-* 1 pack of walnuts
+* 2 pack of walnuts
 
 
 ### H3
-
+PREPERATION 
 
 ⋅⋅* Preheat the oven to 220 C.
 
