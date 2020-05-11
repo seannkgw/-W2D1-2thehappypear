@@ -22,8 +22,8 @@ FOR THE CREAMY CURRY SAUCE:
 * 3 tbsp desiccated coconut
 * 2 tbsp ground almond
 * 1 tin of chopped tomatoes
-* 2 tin of coconut milk
-* 1 pack of peanuts
+* 3 tin of coconut milk
+* 3 pack of peanuts
 
 
 ### H3
